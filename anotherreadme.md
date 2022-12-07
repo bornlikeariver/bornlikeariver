@@ -4,7 +4,7 @@ i don't like talking about myself so...yeah. i'll put some necessary stuff.
 
 
 # pronouns
-## i'm nonbinary but i don't mind how you percieve me so any. any pronouns will do
+### i'm nonbinary, but i don't mind how you percieve me, so any. any pronouns will do
 
 # social media
 #### <img src='./imgs/discord.png' width=20> [discord (bornlikeariver#0015)](https://discord.com/users/811729705865969724)
