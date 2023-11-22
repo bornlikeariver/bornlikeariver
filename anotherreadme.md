@@ -15,4 +15,4 @@ i don't like talking about myself so...yeah. i'll put some necessary stuff.
 <br />
 <br />
 
-# annnnd that's all of the necessary stuff i can think of talking about. have a good day, person :D
+### annnnd that's all of the necessary stuff i can think of talking about. have a good day, person :D
